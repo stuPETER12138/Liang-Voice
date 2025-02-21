@@ -1,0 +1,9 @@
+- [Tracking China's culture](https://www.chinadaily.com.cn/a/202502/13/WS67ad36aca310a2ab06eabe70.html)
+- With the grand opening and subsequent thrilling competitions of the 9th Asian Winter Games in Harbin, Northeast China's Heilongjiang province, capturing the world's attention, alongside the city's magnificent ice sculptures and snowy scenery, the region's rich and diverse intangible cultural heritage has also found its way into the spotlight.
+---
+- [Young deity morphs into box-office champion](https://www.chinadaily.com.cn/a/202502/15/WS67aff0bca310c240449d56b2.html)
+- Despite his bad temper and unconventional appearance — sporting dark circles under his eyes and uneven teeth — this toddler deity named Nezha occasionally morphs into a powerful teenager, shattering box-office records at an astonishing pace.
+---
+- [以文明交流互鉴推动人类文明发展进步](https://www.news.cn/world/20250218/8df9b77eaea54857bcbe37439ef46fc9/c.html)
+- 一部人类文明史，就是一部多元文明共生并进的历史。早在5000多年前，中华文明就开始与世界各地文明积极交流，各取所长、各呈其美。2000多年前，中国西汉王朝的使者张骞“凿空”西域，谱写了一曲文明互鉴的恢弘史诗，丝绸之路从此成为中国与世界共同进步的纽带。从东西方青铜文化的交流，到琥珀之路的形成、新航路的开辟……不同文明交流、借鉴、融合，共同绘就人类历史的宏伟画卷。
+---
